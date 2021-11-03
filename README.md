@@ -1,2 +1,0 @@
--selam ben Eren Sezen
--10. sınıftayım ve bilişim okuyorum
